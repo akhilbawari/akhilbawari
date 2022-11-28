@@ -12,7 +12,8 @@
 
 - 💬 Ask me about **BackEnd Development**
 
-- 📫 How to reach me **akhilbawari0804@gmail.com**
+- 📫 Resume (https://drive.google.com/file/d/17P9zEmo5BY1p4_NzpS1sJOIEXiIMOybQ/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
